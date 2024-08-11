@@ -1,0 +1,2 @@
+# BNT
+TRUSTWALLET
